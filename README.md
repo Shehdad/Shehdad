@@ -1,5 +1,5 @@
 ### Hi there I’m Shehdad Ali👋
-Passionate UI/UX Designer
+Passionate UI/UX Designer with 5+ years of experience
 
 I’m working for [Rogers Red Wireless](https://www.redwireless.ca/)
 
